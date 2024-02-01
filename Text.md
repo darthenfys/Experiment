@@ -2,7 +2,7 @@
 ##Fear. It is a mind-killer. Conquer it and you conquer the world. A child's fears are easy to comprehend, afraid of the big monster under the bed or a fictitious person who would be punished at the sight of unfinished chores. Even as you grow older, you don't let go of these fears but add on to them. But one never stops to realise just how much of one's actions are coloured by fear. The more you look into it, the more you realise that you are surrounded by fear. People who live their lives above it must be the truly liberated ones. So much fear bleeds into conversations and thematically it is always about otherness. Perhaps we crave so much to be accepted and assimilated into our groups.
 ##You were born just shy of summer, with sun-kissed hair and sea-breeze eyes. You possessed the beauty of old. How could I have guarded my heart against that? It was yours the moment you walked in.
 ##** I will peel the moon and feed you its shine.
-##Under the pale light of the moon, surrounded by thick dense fog, 
+####Under the pale light of the moon, surrounded by thick dense fog, 
 he stares down.
 He isn't afraid of the lack of visibility, 
 in fact, it's a much-needed boon 
